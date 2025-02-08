@@ -26,3 +26,4 @@ Join our Telegram channels for the latest updates, bypass methods, and new featu
 t.me/vivalabanda
 
 USE AT YOUR OWN RISK OF A BAN, PLAY SAFE AND DONT BE OBVIOUS.
+![Image](https://github.com/user-attachments/assets/d4db4f5f-d005-4ded-81c2-de40cd1d48c8)
