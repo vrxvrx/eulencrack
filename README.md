@@ -26,4 +26,3 @@ Join our Telegram channels for the latest updates, bypass methods, and new featu
 t.me/vivalabanda
 
 USE AT YOUR OWN RISK OF A BAN, PLAY SAFE AND DONT BE OBVIOUS.
-![Telegram Logo](https://upload.wikimedia.org/wikipedia/commons/thumb/8/83/Telegram_Logo.svg/1024px-Telegram_Logo.svg.png)
